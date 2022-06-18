@@ -1,4 +1,4 @@
 # futureplans
-GATE 
-M.TECH IIT
+MNC Job in Software company
+M.Tech in a passionate field
 wedding
