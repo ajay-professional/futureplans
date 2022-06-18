@@ -1,3 +1,4 @@
 # futureplans
-IBPS PO
+GATE 
+M.TECH IIT
 wedding
