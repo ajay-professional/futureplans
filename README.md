@@ -1,3 +1,3 @@
 # futureplans
-MBA 
+IBPS PO
 wedding
