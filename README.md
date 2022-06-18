@@ -1,4 +1,4 @@
 # futureplans
 MNC Job in Software company
-M.Tech in a passionate field
+Civil Design Engineer job role
 wedding
