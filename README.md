@@ -1,1 +1,3 @@
 # futureplans
+MBA 
+wedding
